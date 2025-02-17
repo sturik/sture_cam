@@ -1,6 +1,6 @@
 ---
-title: cam's digital garden
+title: other's words 
 ---
 
-"You sensed that you should be following a different path, a more ambitious one, you felt that you were destined for other things but you had no idea how to achieve them and in your misery you began to hate everything around you,"
+"You will burn and burn out; then you will heal and come back again,"
 - Fyodor Dostoyevsky
